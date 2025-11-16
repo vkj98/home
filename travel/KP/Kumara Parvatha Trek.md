@@ -2,15 +2,15 @@ I had not trekked for a few months and was badly missing the jungles. So on the 
 
 ## Routes to the peak
 
-KP can be reached by 2 routes. One of the routes starts from Kukke town right behind the famous Kukke Subramanya temple. This trail is difficult and covers a distance of 14 kms one way. Most of it is steep clim over rocky sections. This is the route which earns this trek the title of the most difficult trek of South India. I had trekked via this path thrice earlier.
+KP can be reached by 2 routes. One of the routes starts from Kukke town right behind the famous Kukke Subramanya temple. This trail is difficult and covers a distance of 14 kms one way. Most of it is steep climb over rocky sections. This is the route which earns this trek the title of the most difficult trek of South India. I had trekked via this path thrice earlier.
 
-The other route starts from Bidahalli forest checkpost in Somwarapete. I had never been from this side. This trail is relatively easier compared to the Kukke one and one has to cover just 7km to reach the peak. The trail passes through forests with mostly flat or gradual climb. There are a couple of rocky patches that are steep.
+The other route starts from Bidehalli forest checkpost in Somwarapete. I had never been from this side. This trail is relatively easier compared to the Kukke one and one has to cover just 7km to reach the peak. The trail passes through forests with mostly flat or gradual climb. There are a couple of rocky patches that are steep.
 
-I went on this trek with Plan The Unplanned (PTU). We did a circuit trek starting from Bidahalli and ending at Kukke. I generally do not capture photos while on the trail. But on this trek, for a change, I captured a few pics and I will be putting some of them here.
+I went on this trek with Plan The Unplanned (PTU). We did a circuit trek starting from Bidehalli and ending at Kukke. I generally do not capture photos while on the trail. But on this trek, for a change, I captured a few pics and I will be putting some of them here.
 
 ## The Journey and the trek
 
-We started our journey from Bangalore on the night of Friday. We reached our homestay early on Saturday. We got a bit delayed in freshening up and having breakfast and I don't really remember when we left from our homestay. We got in the bus and the bus drove us up to the beginning of the trailhead. From here, we had to walk another km to reach Bidahalli forest office. Most of this walk was on flat ground with a bit of incline up and down.
+We started our journey from Bangalore on the night of Friday. We reached our homestay early on Saturday. We got a bit delayed in freshening up and having breakfast and I don't really remember when we left from our homestay. We got in the bus and the bus drove us up to the beginning of the trailhead. From here, we had to walk another km to reach Bidehalli forest office. Most of this walk was on flat ground with a bit of incline up and down.
 
 This was the first pic I captured. Some cloud covered peaks are visible at a distance
 
@@ -23,7 +23,7 @@ Approaching the forest office. The roof visible in the pic is the forest office.
 
 ![](KP/attachments/IMG20251108082745.jpg)
 
-We got our permits and bags checked and started the trek. We were a group of 20 trekkers accompanied by 2 trek leads and 2 trek guides. The trail starting from the forest office crosses over a wide stream which is spanned by a hanging bridge. The bridge shakes while one walks on it, adding another sense of adventure to the experience.
+We got our permits and bags checked and started the trek. We were a group of 20 trekkers accompanied by 2 trek leads and 2 local guides. The trail starting from the forest office crosses over a wide stream which is spanned by a hanging bridge. The bridge shakes while one walks on it, adding another sense of adventure to the experience.
 
 ![](KP/attachments/IMG20251108085305.jpg)
 
@@ -42,8 +42,6 @@ The trail entered forest again and we were greeted with interesting trees all ar
 There also was a dense growth of bamboo alongside the trail
 
 ![](KP/attachments/bamboo.jpg)
-
-Came across this small waterfall on the side of the trail. The flow must be more during the monsoons
 
 An interesting flower
 
@@ -107,9 +105,7 @@ We spent quite some time roaming around the peak exploring different viewpoints.
 
 ![](KP/attachments/IMG20251108124853.jpg)
 
-![](KP/attachments/IMG20251108124856.jpg)
-
-![](KP/attachments/IMG20251108124856%201.jpg)![](KP/attachments/IMG20251108124933.jpg)
+![](KP/attachments/IMG20251108124933.jpg)
 
 It was time to turn back. While descending from the peak, I cam across scat of some animal which I was not sure of. I need to show it to someone who can identify it. Here is a pic of it with my goggles as reference for the size.
 
@@ -130,7 +126,6 @@ The forest section between KP and Sesha Parcatha has to be one of the best secti
 
 On reaching Sesha Parvatha, the clouds cleared for a bit and we were able to get some good views of the valley below us.
 
-![](KP/attachments/IMG20251108142536.jpg)
 
 ![](KP/attachments/IMG20251108142539.jpg)
 
@@ -159,10 +154,7 @@ The views all around this viewpoint are a treat to the eyes.
 
 ![](KP/attachments/IMG20251108180403.jpg)
 
-The trek after this became challenging. The people who were injured found every step difficult to take. We had to help them a bit. We kept lying all thoughout the trek, telling them that we were almost at the end of the trek. Finally we reached the exit check post at Kukke a few minutes before 10pm. We got in the bus and reached our homestay after midnight. Just as I was getting out of the trail, I saw this frog sitting in the middle of the path and took a pic.
+The trek after this became challenging. The people who were injured found every step difficult to take. We had to help them a bit. We lied to them all throughout the trek, telling them that we were almost at the end of the trek. Finally we reached the exit check post at Kukke a few minutes before 10pm. We got in the bus and reached our homestay after midnight. Just as I was getting out of the trail, I saw this frog sitting in the middle of the path and took a pic.
 
 ![](KP/attachments/IMG20251108214253.jpg)
 
-Here is a small video to show how the forest looks at night. Cricket sounds can be heard in the background.
-
-![](KP/attachments/VID20251108201000.mp4)
